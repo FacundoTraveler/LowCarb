@@ -1,0 +1,2 @@
+# LowCarb
+"Low Carb Latam" is an independent organization, politically and economically, that uses media coverage to attract public attention toia the benefits related to good eating habits and promote education in this regard to achieve proper child development.   "Low Carb Latam" is organized in campaigns, understood in its broadest sense as the sum of efforts to achieve systemic and cultural changes in favor of a healthy lifestyle.
